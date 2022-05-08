@@ -1,6 +1,8 @@
 # how-to-dump-gamesense.pub | Edit* How to hack onetap.com | aimware.net | gamesense.pub | neverlose.cc 
 ## https://gamesense.cloud  |  https://h4xr0x.cc  |  https://discord.gg/GUzruuBh
 ```I said I could teach a monkey to do it; I wasn't wrong - just copy and paste it```
+![image](https://user-images.githubusercontent.com/65768277/167302860-28b3bae8-8a59-4d5e-8ad5-d1fbca11a949.png)
+
 ![image](https://user-images.githubusercontent.com/65768277/167302578-19b106fb-7581-4e25-8cf8-2fc6046271c4.png)
 
 ![image](https://user-images.githubusercontent.com/65768277/167282799-f65015c3-748b-428e-b2ef-20d99737d6a1.png)
